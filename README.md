@@ -1,3 +1,0 @@
-# newbie
-Amujempa
-{brotherhood}
