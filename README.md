@@ -1,2 +1,0 @@
-# newbie
-My team brotherhood
